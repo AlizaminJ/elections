@@ -1,0 +1,2 @@
+# elections
+Party agenda, Norway
